@@ -1,1 +1,1 @@
-Author: sirawit kaohnsri
+Author: ศิรวิทย์ ขจรศรี
